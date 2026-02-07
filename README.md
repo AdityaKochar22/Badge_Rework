@@ -1,2 +1,2 @@
 # Badge_Rework
-## some changes plis work this time for somethings
+## some changes plis work this time for someor
